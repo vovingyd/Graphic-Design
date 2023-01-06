@@ -8,7 +8,7 @@ If you are new to logo design or just looking for some guidance, I am happy to w
 
 • Revisions are welcome before i send all extra files for your order
 
-• Logo is made using Krita
+• Logo is made using Krita, GIMP, Inkscape
 
 • Preview is 510 x 510 px
 
