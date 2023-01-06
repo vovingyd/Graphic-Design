@@ -5,12 +5,17 @@ I offer high-quality logo design services on GitHub, with a focus on creating un
 If you are new to logo design or just looking for some guidance, I am happy to work with you and provide as much support as you need to create a professional, eye-catching logo. Don't hesitate to reach out and discuss your project – I am here to help you succeed.
 
 • I will send the logo within 2- 3 days depend on the order in queue
+
 • Revisions are welcome before i send all extra files for your order
+
 • Logo is made using Krita
+
 • Preview is 510 x 510 px
 
 What you will get in the final result
+
 • JPG and PNG files 1000 x 800 px
+
 • Any other format you require
 
 
