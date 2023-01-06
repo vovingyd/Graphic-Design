@@ -11,8 +11,7 @@ I offer high-quality logo design services on GitHub, with a focus on creating un
 
 • Preview is 510 x 510 px
 
-
-## Cartoon Logo €70.00
+## Cartoon Logo - €70.00
 
 What you will get in the final result
 
